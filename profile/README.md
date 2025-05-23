@@ -8,7 +8,7 @@ Welcome to **Quru Lab**, a product innovation studio dedicated to solving global
 
 ## 🚀 Our Mission
 
-To design and deliver transformative technology that educates, empowers, and enriches communities across the globe.
+To design and deliver transformative technology that educates, empowers, and enriches people and their business across the globe.
 
 ---
 
